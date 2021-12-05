@@ -1,1 +1,1 @@
-# JAVAMaze
+SPACE to cheat!
